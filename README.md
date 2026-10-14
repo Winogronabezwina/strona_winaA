@@ -1,0 +1,2 @@
+# strona_winaA
+w
