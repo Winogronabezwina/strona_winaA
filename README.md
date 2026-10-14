@@ -1,2 +1,0 @@
-# strona_winaA
-w
